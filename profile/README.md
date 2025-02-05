@@ -56,7 +56,7 @@ Replace negative self-talk with positive affirmations. Remind yourself that you 
 
 To make it easier for you to refer back to these strategies, we have created a free PDF guide. Click the link below to download **The Highly Sensitive Person’s Guide to Dealing with Toxic People** and take control of your emotional well-being.
 
-[**Download Now**](#)
+[**Download Now**](https://github.com/Highly-Sensitive-Person-s-Guide-pdf)
 
 ## Final Thoughts
 
